@@ -1,16 +1,22 @@
-## Hi there 👋
+</div>
 
-<!--
-**patroclusofopus/patroclusofopus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<sub>if you ever see me sitting with a "NOLI-FORSAKEN" or "mephone4s" guys pls call the police idk them!</sub> 
+
+![](https://files.catbox.moe/e9w6be.png)
+
+
+
+
+
+
+
+[atabook](https://hermes.atabook.org)ㅤㅤㅤ[strawpage](https://messengerofthegods.straw.page)
+
+![](https://files.catbox.moe/1787ug.png) ![](https://files.catbox.moe/v1muql.png)
+
+</div>
+
