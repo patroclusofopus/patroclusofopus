@@ -16,6 +16,8 @@
 
 [atabook](https://hermes.atabook.org)ㅤㅤㅤ[strawpage](https://messengerofthegods.straw.page)
 
+<sub>art by devotivesugarrush</sub> 
+
 
 </div>
 
