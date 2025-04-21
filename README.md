@@ -14,7 +14,7 @@
 
 
 
-[atabook](https://hermes.atabook.org)ㅤㅤㅤ[strawpage](https://messengerofthegods.straw.page)
+[atabook](https://hermes.atabook.org)ㅤㅤㅤ[strawpage](https://parisoftroy.straw.page)
 
 <sub>art by devotivesugarrush</sub> 
 
